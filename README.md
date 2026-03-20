@@ -6,7 +6,7 @@
 
 ## ⚠️ **Persönlicher Hinweis vorab**
 
-Ich schreibe diese Zeilen als enttäuschter Freund und Betrugsopfer. Thomas D. und ich waren wie Brüder. Wir haben zusammen durchgehalten, zusammen gekämpft, zusammen geliebt. Bis er mir **1 kg Kokain abgefuckt** hat. Ja, ihr habt richtig gehört. Ein ganzes Kilo. Ihr könnt es sogar in seinem Song "Die Welt von oben" hören - da rappt er drüber, der Arschloch.
+Ich schreibe diese Zeilen als enttäuschter Freund und Betrugsopfer. Thomas D. und ich waren wie Brüder. Wir haben zusammen durchgehalten, zusammen gekämpft, zusammen geliebt. Bis er mir **1 kg Kokain abgefuckt** hat. Ja, ihr habt richtig gehört. Ein ganzes Kilo. 
 
 Aber das ist nur die Spitze des Eisbergs. Was ich in den letzten Monaten über seine wahren Aktivitäten herausgefunden habe, ist viel, viel schlimmer...
 
