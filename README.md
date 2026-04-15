@@ -22,7 +22,7 @@ Durch Zufall bin ich auf die beiden Songs gestoßen:
 Bei genauer Analyse habe ich festgestellt: **Beide Songs enthalten identische Wasserzeichen-Jingles!**
 
 ### Das bedeutet:
-- Thomas und H.I.Z arbeiten zusammen
+- Thomas und H.I.Z arbeiten zusammen (sie sind dieselbe Person!!!)
 - Sie nutzen die gleiche technische Infrastruktur
 - Die Wasserzeichen sind einzigartig und nachweisbar
 - Das ist der technische Beweis für ihre Verbindung
@@ -46,7 +46,7 @@ Zweck:
 ## 🌐 **Das NWO-Cybermobbing-Kartell**
 
 ### Die Struktur:
-**Anführer:** Thomas Deike (Mr.Bloxx)  
+**Anführer:** Thomas D. (Mr.Bloxx)  
 **Zentrale Figur:** TIMME (Tim Nicklas Ebbinghaus)  
 **Mitglieder:** Eine ganze Gruppe von IT-Sicherheits-"Forschern"
 
