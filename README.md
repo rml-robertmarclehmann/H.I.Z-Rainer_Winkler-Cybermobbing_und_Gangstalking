@@ -31,8 +31,6 @@ Bei genauer Analyse habe ich festgestellt: **Beide Songs enthalten identische Wa
 
 ## 🎭 **Die Wahrheit über H.I.Z**
 
-Jeder dachte, H.I.Z wäre Rainer Winkler. **FALSCH!**
-
 Rainer Winkler ist eines der größten Opfer dieses ganzen Spiels. Die Wahrheit ist viel düsterer:
 
 **H.I.Z ist eine KI-Figur des NWO-Cybermobbing-Kartells!**
